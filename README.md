@@ -1,1 +1,2 @@
 # days
+[casino days com](https://casino-days.co.in/) launched in India in June 2020. A team of experienced casino staff has allowed him to rise quickly to the top ranks of the most efficient casino sites. There are more than 2,000 games to choose form and a strong VIP rewards system. These are just two reasons that people sign up with Casino Days. Another thing that makes this online casino platform unique is its ability to accept cryptocurrency payments like bitcoin.
